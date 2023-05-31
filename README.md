@@ -3,8 +3,6 @@
 
 ### 🔭Meu Nome é Rafael
 ### ❤️ Gosto muito de Arte, Música e Jogos e outras coisas
-### 🎨 INFP 4w5
-### ♏ Scorpio
 ### 💬 Meu Inglês é intermediário porém não estou tendo muita oprtunidade de praticar<br>
 
 ##
